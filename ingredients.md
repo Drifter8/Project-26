@@ -1,0 +1,1 @@
+the ingredients are milk, heavy cream, sugar, salt, vanilla extract, peppermint extract, chocolate chips.
